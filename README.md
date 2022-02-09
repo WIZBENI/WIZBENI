@@ -1,0 +1,3 @@
+- 👋 Hi, I’m @WIZBENI
+- 👀 i'm a crypto researcher and trader
+-
